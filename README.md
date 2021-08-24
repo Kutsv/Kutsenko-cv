@@ -1,2 +1,0 @@
-# Kutsenko-cv
-cv
