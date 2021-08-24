@@ -58,7 +58,7 @@ Faculty of Biotechnology of the Chemical and Pharmaceutical University|<p>Master
 - *Music*
 - *Films* 
 - *Theather*
-- *Travalling*
+- *Trevalling*
 
 ## **About me**
 *Ability to work as part of the team*. Organizational skills, the ability to work with a large amount of information. Competent speech. Active life position.I took an active part in the social and scientific life of the Academy. (participation in the IV All-Russian Student Pharmaceutical Olympiad, V Youth Scientific Conference "Young Pharmacy-Potential of the Future", VI Youth Ecological Congress "Northern Palmyra").I work as a Junior Researcher . I think that my actual job will lead me to stagnation some day or other. I really need in activities where I can develop during my life. 
