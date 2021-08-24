@@ -1,4 +1,4 @@
-﻿﻿﻿# Kutsenko Anastasia  
+﻿# Kutsenko Anastasia  
  
 ![Kutsenko (2)](https://user-images.githubusercontent.com/86299064/130675047-ef7c3738-6803-4ae1-a45b-ed14fdf19aad.jpg)
 
