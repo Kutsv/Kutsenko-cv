@@ -72,7 +72,7 @@ Faculty of Biotechnology of the Chemical and Pharmaceutical University|<p>Master
 
 
 ## **About me**
-I took an active part in the social and scientific life of the Academy (participation in the IV All-Russian Student Olympiad, V Youth Scientific Conference "Young Pharmacy-Potential of the Future", VI Youth Ecological Congress "Northern Palmyra"). I work as a Junior Researcher. My professional development matters a lot to me, that I am constantly seeking for new. 
+I took an active part in the social and scientific life of the Academy (participation in the IV All-Russian Student Olympiad, V Youth Scientific Conference "Young Pharmacy-Potential of the Future", VI Youth Ecological Congress "Northern Palmyra"). My professional development matters a lot to me, that I am constantly seeking for new. 
  
 
 ----
